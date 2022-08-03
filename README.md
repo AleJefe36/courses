@@ -1,5 +1,5 @@
 # Cursos-Premium
-Miles de cursos de Udemy, Platzi, EDteam, entre miles de plataformas más!
+Miles de cursos de Udemy, Platzi, EDteam, entre miles de plataformas más! Pagos en Criptomoneda o Paypal
 
 Aquí tendréis los cursos disponibles, para tener alguno ya sea por Telegram o algún método, me escriben al privado en Telegram: [@AleJefe](https://t.me/AleJefe36)
 
