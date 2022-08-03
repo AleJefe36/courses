@@ -1,4 +1,4 @@
-# Hacke-Cursos
+# Cursos-Premium
 Miles de cursos de Udemy, Platzi, EDteam, entre miles de plataformas más!
 
 Aquí tendréis los cursos disponibles, para tener alguno ya sea por Telegram o algún método, me escriben al privado en Telegram: [@Devco](https://t.me/devcorek)
