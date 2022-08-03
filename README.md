@@ -1,7 +1,7 @@
 # Cursos-Premium
 Miles de cursos de Udemy, Platzi, EDteam, entre miles de plataformas más! Pagos en Criptomoneda o Paypal
 
-Aquí tendréis los cursos disponibles, para tener alguno ya sea por Telegram o algún método, me escriben al privado en Telegram: [@AleJefe](https://t.me/AleJefe36)
+Aquí tendréis los cursos disponibles, para tener alguno ya sea por Telegram o algún método, me escriben al privado en Telegram: [@AleJefe36](https://t.me/AleJefe)
 
 * [Curso de Canva 2021 (UDEMY) ](https://t.me/c/1660818011/15599)
 * [Experto en Diseño Gráfico Creativo con Canva (UDEMY) ](https://t.me/c/1660818011/15603)
